@@ -33,6 +33,6 @@
 
 ### 🔗 Links & Socials
 
-- 🌐 **X (Twitter):** Not Avaliable
+- 🌐 **X (Twitter):** [Mac.Clover](https://x.com/davidvelzqtpx4?s=11https://x.com/davidvelzqtpx4?s=11)
 - 💬 **Discord:** Not Avaliable
 - 📦 **Projects:** Check out the *Repositories* tab to see my latest work!
